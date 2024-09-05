@@ -11,6 +11,7 @@ _italico_
  - 2 colheres de sopa de ketchup
  - 2 colheres de sopa de mostarda
  - Canela em pó
+ - VAI TER CANELA SIM!!!!!!!!!!!!!
  - Champignon
  - Batata palha e arroz branco para acompanhar
 
